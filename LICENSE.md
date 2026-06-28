@@ -1,4 +1,4 @@
-# 
+# Turbo Atom preajustes para Mac OS | Gratuito Atom preajustes para PC Windows. Con escaneo de imágenes y explorador de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
